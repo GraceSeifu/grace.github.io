@@ -24,20 +24,20 @@ We believe beauty is personal, and we’re here to make sure your hair reflects 
 
 ---
 
-## 📍 Visit Us
+## 📍 Contact Us
 
-**📍 Location:** 123 Main Street, Stoughton, MA  
-**📞 Phone:** (781) 344-3478  
-**📧 Email:** info@graceshairsalon.com  
-**🕐 Hours:** Mon–Sat: 9AM – 6PM
+📞 **[Call Now: (781) 344-3478](tel:7813443478)**  
+📧 **[Email Us](mailto:info@graceshairsalon.com)**  
+📍 **123 Main Street, Stoughton, MA**  
+🕐 **Mon–Sat: 9AM – 6PM**
 
 ---
 
 ## 📸 Follow Our Glow-Up Journey
 
 Coming soon:  
-Before & after transformations.  
-Hair care tips.  
-Client shout-outs.
+✨ Before & after transformations  
+✨ Hair care tips  
+✨ Client shout-outs
 
-[📷 @graceshairsalon](#) ← your Instagram or booking link here
+📷 **[Follow us on Instagram](#)** ← update with your real handle!
